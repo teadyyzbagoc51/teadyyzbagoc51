@@ -1,4 +1,4 @@
-### shavonnelester
+### - **Discord**: [shavonnelester](https://discord.com/users/shavonnelester)
 
 <!--
 **teadyyzbagoc51/teadyyzbagoc51** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
